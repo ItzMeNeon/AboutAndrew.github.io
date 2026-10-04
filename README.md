@@ -1,4 +1,4 @@
-# AboutAndrew.github.io
+# About AndriusOnTwitch
 
 Hiya! I'm AndriusOnTwitch 📺 or Known as Andrew Kapunas! ✨
 
